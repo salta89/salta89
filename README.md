@@ -12,3 +12,5 @@ and visually engaging stories that resonate with diverse audiences.
 
 - Guide informed decision-making: I deliver actionable recommendations grounded in data, 
 empowering stakeholders to make strategic choices with confidence.
+
+Feel free to reach out to me via email at saltatulegabylova@gmail.com I look forward to hearing from you.
